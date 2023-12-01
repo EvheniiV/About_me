@@ -50,4 +50,4 @@
 - Строительство (от исполнителя до проектирования и руководства людьми)
 ## Высшее образование:
 2008 г. Донецкий юридический институт, юрист.
-## Электронные сертификаты о прохождении курсов повышения квалификации по [ссылке](https://drive.google.com/drive/folders/1AgLi8VnXaottMOtYyiYVWEAfZxYV4YbT?usp=drive_link)
+## Электронные сертификаты о прохождении курсов  по [ссылке](https://drive.google.com/drive/folders/1AgLi8VnXaottMOtYyiYVWEAfZxYV4YbT?usp=drive_link)
